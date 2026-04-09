@@ -1,2 +1,2 @@
-# PhotoshopProjects
-This is some of a few works I have done in the past with photoshop
+# Graphics Design portfolio 
+This is some of a few works I have done with my skills in Graphics Designing 
